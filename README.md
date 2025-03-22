@@ -1,4 +1,4 @@
-### Profile Views
+### 🎯 Profile Views
 
 ![](https://count.getloli.com/get/@yixuanoct.github.profile?theme=capoo-2)
 
